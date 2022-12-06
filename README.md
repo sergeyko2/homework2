@@ -4,4 +4,4 @@
 
 The project was created to perform basic Git operations.
 
-Glory to Ukraine! Glory to heroes!
+Glory to Ukraine! Glory to heroes! Russians are not people.
