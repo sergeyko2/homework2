@@ -8,3 +8,4 @@ Glory to Ukraine! Glory to heroes!
 We believe in the Armed Forces
 
 Pig-dogs
+must
